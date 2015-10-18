@@ -1,8 +1,13 @@
+Les libéraux supporteraient le partenariat trans-pacifique mais ont des réticenses quant aux concessions reliées à la production laitière.
+
 The Liberals would support the Trans-Pacific Partnership but have concerns about the dairy concessions required.
 
-##### What is the Trans-Pacific Partnership?
-The TPP is a cross-pacific trade agreement including Canada, USA, Japan, Chile, New Zealand, Vietnam, Malaysia, among others.
+##### Qu'est-ce que le partenaria trans-pacifique ?
 
-- Looser requirements for tariff-free cars and trucks, allowing cars to be manufactured outside of North America
-- Copyright protections will become much stricter, enforcing criminal charges when violating copyright law, and restricting free use
-- Would open small part of dairy, poultry and egg markets (1.5% to 3.25% of production) to foreign imports
+Le PTP est un accord commercial trans-pacifique qui comprend entre autre le Canada, États-Unis, Japon, Chilie, Nouvelle-Zélande, Vietnam, Malaisie.
+
+Le PTP est un accord commercial multipartites incluant entre autre le Canada, les États-Unis, le Japon, la Nouvelle-Zélande, le Vietnam, la Malaisie.
+
+- Diminuer les règles encadrant les tarifs sur les voitures et les camions, autorisant la production de voitures à l'extérieur de l'amérique du Nord
+- La protection des droits d'auteur deviendra plus stricte, rendant criminel la violation des lois de copyright et restreignant l'utilisation gratuite
+- Ouvrira une certaine portion du marché du lait, de la volaille et des oeufs (1.5% à 3.25% de la production) à l'importation étrangère

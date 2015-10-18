@@ -1,5 +1,5 @@
-The Liberals plan to invest **$1.3 billion** over three years on youth employment and opportunity. 
+Les libéraux planifient d'investir **1.3 milliard$** sur 3 ans dans l'emploi et les opportunités pour les jeunes.
 
-From this money, they intend to spend **$300 million/year** to help create 40,000 new youth jobs per year. After three years, the Liberals will increase funding for the Youth Employment Strategy by **$50 million/year**.
+De cet argent, ils ont l'intention d'investir **300 millions$/année** pour encourager la création de 40.000 nouveaux emplois pour les jeunes par année. Après 3 ans, les libéraux voudraient augmenter le financement de la stratégie pour l'emploi pour les jeunes de **50 millions$/année**.
 
-**$40 million/year** will go towards increased co-op positions for work in science, technology, engineering, mathematics, and business.
+**40 millions$/année** sera investit pour augmenter les stages en science, technologie, ingénirie, mathématique et en commerce.
